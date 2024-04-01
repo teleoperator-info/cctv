@@ -9,7 +9,11 @@ Also Advanced Video Analysis and how that can help in this area of Surveillance 
 Do join our video surveillance and security network at [teleOperator.net](https://www.teleoperator.net/)
 
 
+---
 
+Video Surveillance Market Size, Share, Competitive Landscape and Trend Analysis Report by Component, by Enterprise Size, by System Type, by Customer Type, by Application : Global Opportunity Analysis and Industry Forecast, 2023-2032
+
+---
 
 The global video surveillance market was valued at $61.8 billion in 2022, and is projected to reach $204.5 billion by 2032, growing at a CAGR of 12.8% from 2023 to 2032.
 
